@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Sarasara206
 - 👀 I’m interested in listing music 
-- 🌱 I’m currently learning 3rd year
+- 🌱 I’m currently learning final year
 - 💞️ I’m looking to collaborate on coding
 - 📫 How to reach me via mail
 
