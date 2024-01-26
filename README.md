@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Sarasara206
+- 👋 Hi, I’m SARANYA
 - 👀 I’m interested in listing music 
 - 🌱 I’m currently learning final year
 - 💞️ I’m looking to collaborate on coding
